@@ -1,6 +1,6 @@
 # **Hi there 👋**
 
-### My name is Dexilou Dizon Barotia 🎨
+###**My name is Dexilou Dizon Barotia 🎨**
 
 **Aspiring Animator • BS Information Technology Student • Creative & Technical Enthusiast**
 
